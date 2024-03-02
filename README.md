@@ -1,0 +1,1 @@
+# 100-G-nde-Veri-Bilimci
